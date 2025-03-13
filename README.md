@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm [Your Name]! 🚀  
+# 👋 Hey there, I'm Deva Nandan! 🚀  
 
 🎯 **Computer Science Student | Tech Enthusiast | Developer**  
 
