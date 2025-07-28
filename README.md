@@ -2,7 +2,7 @@
 
 🎯 **Computer Science Student | Tech Enthusiast | Developer**  
 
-🌍 From **Trivandrum**, passionate about coding and exploring new technologies.  <br/>
+🌍 From **Trivandrum**, Passionate about coding and exploring new technologies.  <br/>
 💻 Always learning, building, and experimenting with creative ideas.  <br/>
 🎮 Love gaming, AI, and pushing the boundaries of what's possible.  <br/>
 🛠️ Open to collaborations and always up for a challenge!  <br/>
